@@ -1,1 +1,0 @@
-# JegaDevs.github.io
